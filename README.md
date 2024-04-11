@@ -1,1 +1,1 @@
-# SBTJ-MERCH-
+# SBTJ-MERCH
